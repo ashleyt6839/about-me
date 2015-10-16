@@ -3,7 +3,8 @@
 *Email:* Ashleyt6839@hstat.org  
 *School:* High School of Telecommunication of Arts & Technology  
 *Age:* 15 Years old  
-*D.O.B:* November 5th, 1999  
+*D.O.B:* November 5th, 1999
+*Height* 5'3
 
 ---
 ###_*Schedule:*_
